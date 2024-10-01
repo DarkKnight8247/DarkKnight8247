@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @DarkKnight8247
 - 👀 I’m interested in photography and programming
 - 🌱 I’m currently learning programming
-- 💞️ I’m looking to collaborate on nothing Lmao
-- 📫 How to reach me: no
+- 💞️ I’m looking to collaborate with no one Lmao
+- 📫 How to reach me: I don't like people
 - 😄 Pronouns: meow
 - ⚡ Fun fact: im a cat
 
